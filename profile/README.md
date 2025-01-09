@@ -43,7 +43,7 @@ Wir freuen uns über jeden, der:
 
 - Eigeninitiative und Lernbereitschaft mitbringt  
 - Teil eines sozialen Projekts werden möchte  
-- Erfahrungen in einem der genannten oder ähnlichen Bereiche hat
+- Erfahrung in einem der genannten Bereiche hat oder sich selbständig einarbeiten möchte
 
 ## 📬 Kontakt
 
